@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Tia-Seniya
 - 👀 I’m interested in Asian spiritual practises, enightenment and the World getting better; also gardening, Sanskrit and Tamil languages.
-- 🌱 I’m currently learning Portuguese and Russian languages, and Nepalese Sarvanaya Tantra.
+- 🌱 I’m currently learning Portuguese and Russian languages, and Nepalese Sarvamnaya Tantra.
 - 💞️ I’m looking to collaborate on lucid dreaming, and dreaming a better World into being.
 - 📫 How to reach me by email at theaSeniya@gmail.com
 - 😄 Pronouns: She/her
