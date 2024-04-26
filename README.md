@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on lucid dreaming, and dreaming a better World into being.
 - 📫 How to reach me by email at theaSeniya@gmail.com
 - 😄 Pronouns: She/her
-- ⚡ Fun fact: I've been to Tibet and I used to design control systems for a nuclear power plant.
+- ⚡ Fun fact: I've been to Tibet and I've design control systems for a nuclear power plant I worked in.
 
 <!---
 Tia-Seniya/Tia-Seniya is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
