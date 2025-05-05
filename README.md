@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @Tia-Seniya
-- 👀 I’m interested in Asian spiritual practises, enightenment and the World getting better; also gardening, Sanskrit and Tamil languages.
-- 🌱 I’m currently learning Portuguese and Russian languages, and Nepalese Sarvamnaya Tantra.
-- 💞️ I’m looking to collaborate on lucid dreaming, and dreaming a better World into being.
-- 📫 How to reach me by email at theaSeniya@gmail.com
+- 👀 I’m interested in Asian spiritual practises, Awakening and the World getting better.
+- 🌱 I’m currently learning European Portuguese, Sri Vidya and non-dual Tantra.
+- 💞️ I’m interested in collaborate on dreaming a better World into being.
+- 📫 Reach me by email at theaSeniya@icloud.com
 - 😄 Pronouns: She/her
-- ⚡ Fun fact: I've been to Tibet and I've design control systems for a nuclear power plant I worked in.
+- ⚡ Fun fact: I've been to Tibet and I've designed control room systems for a nuclear power plant.
 
 <!---
 Tia-Seniya/Tia-Seniya is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
